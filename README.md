@@ -1,0 +1,2 @@
+# Sinandepoooo
+Hersey mevcuttur 🐓🕊️
